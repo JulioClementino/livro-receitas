@@ -44,7 +44,7 @@ champignon a gosto.
 
 1. Leve os ingredientes do creme ao fogo, exceto a baunilha, mexa até engrossar. Apague o fogo e adicione
 a baunilha.
-2.Bata as claras em neve com o açúcar até dar o ponto de suspiro. Misture a lata de creme de leite e reserve.
-3.Em um refratário pequeno, coloque todo o creme, por cima os biscoitos molhados no leite com o achocolatado, 
+2. Bata as claras em neve com o açúcar até dar o ponto de suspiro. Misture a lata de creme de leite e reserve.
+3. Em um refratário pequeno, coloque todo o creme, por cima os biscoitos molhados no leite com o achocolatado, 
 e por cima a cobertura de clara em neve. Decore com achocolatado polvilhado e leve à geladeira por 3 horas. Sirva geladinho.
 4. Está pronto para servir.
