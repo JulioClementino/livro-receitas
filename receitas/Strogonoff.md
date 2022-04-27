@@ -22,3 +22,29 @@ para não queimar.
 champignon a gosto.
 3. Abaixe o fogo e coloque o creme de leite e mexa bem até se tornar um creme homogêneo.
 4. Está pronto para servir.
+
+---
+
+# Pavê Tradicional
+
+### Ingredientes
+
+- 1 lata de leite condensado
+- 1 lata de leite
+- 4 gemas
+- 1 colher de essência de baunilha
+- 4 claras em neve
+- 4 colheres de açúcar
+- 1 lata de cheme de leite sem soro
+- 1 pacote de biscoito champagne
+- 1 xícara de leite
+- 2 colheres de achocolatado em pó
+
+### Modo de Preparo
+
+1. Leve os ingredientes do creme ao fogo, exceto a baunilha, mexa até engrossar. Apague o fogo e adicione
+a baunilha.
+2.Bata as claras em neve com o açúcar até dar o ponto de suspiro. Misture a lata de creme de leite e reserve.
+3.Em um refratário pequeno, coloque todo o creme, por cima os biscoitos molhados no leite com o achocolatado, 
+e por cima a cobertura de clara em neve. Decore com achocolatado polvilhado e leve à geladeira por 3 horas. Sirva geladinho.
+4. Está pronto para servir.
