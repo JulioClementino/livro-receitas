@@ -1,7 +1,7 @@
-#Strogonoff de Frango:chicken:
+# Strogonoff de Frango:chicken:
 
 
-###Ingredientes
+### Ingredientes
 
 - 1 quilo de peito de frango sem pele
 - 1 tablete de caldo de galinha
@@ -13,7 +13,7 @@
 - Champignon 
 - Batata palha e arroz branco para acompanhar
 
-###Modo de Preparo
+### Modo de Preparo
 
 1. Em uma panela de fogo médio, acresenre o óleo e o caldo de galinha e, dissolva o caldo. Logo em
 seguida coloque o franco picado em cubos na panela e deixe cozinhar, sempre dando uma olhadinha
